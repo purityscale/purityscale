@@ -1,4 +1,7 @@
-## Hi there 👋
+
+<p align="center"><img src="https://file.garden/aPPUO2FRoxEKsQbv/IMG_5179-ezgif.com-resize.png"/>
+
+
 
 <!--
 **purityscale/purityscale** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
