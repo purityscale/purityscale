@@ -1,6 +1,6 @@
 
 <p align="center"><img src="https://file.garden/aPPUO2FRoxEKsQbv/IMG_5179-ezgif.com-resize.png"/>
-
+<p align="center">(‾◡◝).. ㅤ ㅤadult, ㅤ under 17 iwc<br>c+h enc if alone.  ㅤwhisper 2 int</p>
 
 
 <!--
